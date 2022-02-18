@@ -1,0 +1,3 @@
+KROMER LIFA APP 0.1X 
+##
+LIFA APP PROVIDES YOU ALL THE RICHES, DESIRES AND EVERYTHING YOU CAN EVER WANT IN YOUR VIRTUAL LIFE. MONEY, WELL BEING, GIFT CARDS, DISCORD NITRO, GAMES, AND MORE. IT HACKS ALL KNOWN SERVERS AND PRINTS A RESULT. IT KNOWS EVERY IP IN THE WORLD. IT KNOWS HOW TO GET STUFF FOR FREE USING PYTHON 3 AND C# CODE. ALSO IT CAN LEARN AND ADAPT TO YOUR NEEDS. https://www.youtube.com/watch?v=ioPdsgSl4SY&list=PL21KQrA4PnMPusLefzviwPUmsepUTZ5fH&index=1 It uses this playlist to manifest itselfs to any device of your choice. Lifa app package 1.0b It generates games, movies, songs, apps, and hacking tools.! KROMER LIFA APP 0.1X It knows every libary in the universe of science and mulitimodel past present future, it can make art too! 
